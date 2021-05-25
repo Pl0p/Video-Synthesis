@@ -24,3 +24,6 @@
  ### Other interesting stuff :
 - https://www.youtube.com/watch?v=u3d-n41Tobw
 - https://www.youtube.com/watch?v=PIgPIrYq-Pc
+
+
+Dont be shy and add your own =)
